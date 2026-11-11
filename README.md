@@ -1,1 +1,0 @@
-# zomoroda-planet
